@@ -1,8 +1,4 @@
 ## .⋆♱ 𝓦𝓮𝓵𝓬𝓸𝓶𝓮 ㅤㅤㅤㅤ
-‌　 :¨ ·.· ¨:
-   `· .  ୨୧
-ㅤ
-
 <!--
 **dcrknight/dcrknight** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
