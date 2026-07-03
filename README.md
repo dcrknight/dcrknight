@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 <div align="center">
   <img src="https://i.ibb.co/ksQ6CD2d/image.gif" width="500">
 </div>
- 𝕬𝖓𝖌𝖊𝖑 𝖔𝖋 𝕯𝖆𝖗𝖐𝖓𝖊𝖘𝖘 . ֹ𝄞 ׅ˖
+ 𝕱𝖆𝖉𝖎𝖓𝖌 𝕮𝖗𝖊𝖘𝖈𝖊𝖓𝖙 . ֹ𝄞 ׅ˖
